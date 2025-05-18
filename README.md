@@ -1,6 +1,6 @@
 ##  <a href="https://fli.so/betnanotv">Canlı Maç İzlemek İçin Tıklayın</a>
 
-# Justin TV 💫 Justin TV Giriş 💫 Justin TV Canlı Maç İzle
+# Justin TV - Canlı Maç İzle - GS - KAY Canlı
 
 <a href="https://fli.so/betnanotv"><img src="https://i.postimg.cc/47LhJZw0/justin-tv-g-rsel-1.png"></a>
 
